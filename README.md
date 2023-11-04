@@ -1,2 +1,2 @@
 Ariana Deleon, 
-Joy Ekechukwu, 
+Joy Ekechukwu
